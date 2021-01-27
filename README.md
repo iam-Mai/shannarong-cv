@@ -1,6 +1,8 @@
 ## Sasithorn Hannarong
 shannarong2015@my.fit.edu | sasithorn.senmaithai@gmail.com | (+66) 098-393-5538 | Github: [iam-Mai](https://github.com/iam-Mai) | LinkedIn: [shannarong](https://www.linkedin.com/in/shannarong)
 
+##### [Resume in PDF](https://drive.google.com/file/d/1EecQo189qOb2T8A7dCnfk6WDb8dTDlPU/view?usp=sharing)
+
 ____________________________
 
 #### Education
