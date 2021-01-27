@@ -4,7 +4,7 @@ shannarong2015@my.fit.edu | sasithorn.senmaithai@gmail.com | (+66) 098-393-5538 
 ____________________________
 
 #### Education
-Florida Institute of Technology, Melbourne, FL (May 2019)\
+Florida Institute of Technology, Melbourne, FL (Aug 2019 - May 2019)\
 Bachelor of Science in Computer Science, magna cum laude with GPA 3.85								
 
 ____________________________
